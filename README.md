@@ -1,6 +1,6 @@
 ### Hi DHERR ✌️ 
 
-![gambar sad](kata-kata sad.png)
+![gambar sad](/foto-sad.jpg)
 
 
 
